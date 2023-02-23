@@ -1,1 +1,0 @@
-# brindakul.github.io
